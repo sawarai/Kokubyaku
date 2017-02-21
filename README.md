@@ -1,2 +1,0 @@
-# Kokubyaku
-黑白
